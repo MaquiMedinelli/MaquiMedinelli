@@ -2,7 +2,7 @@
 
 I'm a Junior Web Developer. 💻🎓   
  
-### Contact:
+### Contact: 
  Via E-mail: Maqui_victoria@hotmail.com
 
  Via Linkedin: https://www.linkedin.com/in/maqui-medinelli-46a78b186/
